@@ -1,2 +1,2 @@
 # Sarhang
-The most goddamn scripts available
+The god scripts available
